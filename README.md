@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Aniket Rathod
 - 👀 I’m interested in Web Development
-- 🌱 I’m currently learning M.E
+- 🌱 I’m currently learning B.E
 - 💞️ I’m looking to collaborate on working projects
 - 📫 How to reach me call on 7057614371 or email me on aniketrathod763@gmail.com
 
